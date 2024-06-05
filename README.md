@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Ana Souza 😁
+## Bem-vindo(a) ao perfil de Anna Souza 😁
 
  <div>
    <a href="https://github.com/annapsou">
